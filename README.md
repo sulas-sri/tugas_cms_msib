@@ -1,1 +1,2 @@
-# tugas_cms_msib
+# Nama : Sulas Sri
+# Asal Perguruan Tinggi : Politeknik Negeri Semarang
